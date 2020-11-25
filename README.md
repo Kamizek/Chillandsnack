@@ -1,4 +1,4 @@
-# Chill and snack 
+<b><i>#Chill and snack</i></b>
 <br>
 <center><h2>It's a perfectly balanced discord</h1>
 <a href="https://i.imgur.com/tqY2ZCp.png" rel="nofollow"><img src= https://i.imgur.com/tqY2ZCp.png height="400"></a>
